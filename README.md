@@ -1,5 +1,10 @@
 # prima-pa
-mi primer pagina
-leslie raquel hernandez dimas 
-briseida idania bernabe martinez 
+mi primer 
+
+leslie raquel hernandez dimas. 
+
+briseida idania bernabe martinez
+
+
 luvia julisa castañeda gutierres
+
